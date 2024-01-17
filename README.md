@@ -1,1 +1,0 @@
-# EDA-Algerian-forest-fires-
